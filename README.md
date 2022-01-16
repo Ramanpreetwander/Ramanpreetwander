@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ramanpreetwander
+- 👀 I’m interested in doing things in different way and thinking creative
+- 🌱 I’m currently learning and i have capable of finding new ideas 
